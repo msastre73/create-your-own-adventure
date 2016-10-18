@@ -1,4 +1,4 @@
-De un río cercano, el maestro desvió su cauce sobre el enemigo, obligándolos a retirarse.
+De un r’o cercano, el maestro desvi— su cauce sobre el enemigo, oblig‡ndolos a retirarse. 
 
 Solo para darse cuenta que:
 
